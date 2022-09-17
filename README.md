@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Maku40
+- 👀 I’m interested in sphere IT I want to learn how to code in python!
